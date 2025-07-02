@@ -1,0 +1,1 @@
+# Sensorlu_Kor-dor_Ayd-nlatmas-
